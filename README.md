@@ -8,3 +8,5 @@ Meu nome é *Samuel Mattos*
 ### Entre em contato comigo! 📫
 
 samu3l.matt0sgalter@gmail.com
+
+![](https://media1.tenor.com/m/jS0BujhdN7EAAAAC/love.gif)
